@@ -1,0 +1,2 @@
+Assalamualaikum
+Hidayah Ya'akub
